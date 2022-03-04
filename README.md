@@ -1,0 +1,2 @@
+# Eyeliner-Tube
+PACKSHOPS is a professional manufacturer in plastic packaging for beauty products.The range of our products mainly includes lipstick tube series,powder cake case&amp; eye shadow case series,eyeliner tubes and mascare tubes &amp; lipgloss tubes series,cream jar series,loose powder series ect.Our products mainly have a good sales in Europe, Middle East,America and South East Asia.Good quality and unique innovation madeus enjoy good reputation in our customers.
